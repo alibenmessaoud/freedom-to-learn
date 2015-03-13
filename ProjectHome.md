@@ -1,0 +1,1 @@
+## This site is about learning in freedom, taking responsibility for your own learning and about breaking the monopoly of knowledge. ##
